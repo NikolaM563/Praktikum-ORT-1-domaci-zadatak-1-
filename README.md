@@ -1,1 +1,0 @@
-# Praktikum-ORT-1-domaci-zadatak-1-
